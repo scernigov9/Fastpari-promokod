@@ -1,0 +1,1 @@
+# Fastpari-promokod
